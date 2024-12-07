@@ -1,3 +1,5 @@
+# The Wars of Eminence
+
 Kowloon floats in space, part of the Orien Cluster.
 
 It is a city world, that has no ground but is a composite of floating buildings.
