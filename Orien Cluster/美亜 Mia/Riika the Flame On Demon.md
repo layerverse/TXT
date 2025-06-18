@@ -74,6 +74,8 @@ The design was one of the Hakke symbols, and the symbol was Li.
 
 The symbol of fire.
 
+Having a Hakke symbol on the body meant he was a member of the On Yakuza.
+
 The heat of the flame did not seem to affect the demon, but a black ring on his finger and the black symbol on his hand turned its color and emitted red light as the flame approached.
 
 A smoke started emerging from the cigarette. A red smoke.
